@@ -6,7 +6,8 @@
 
 ### VK: www.vk.com/id168610393
 
-/
+
+
 **[Название проекта]**
 
 «The Simpsons’ home»
